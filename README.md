@@ -1,1 +1,1 @@
-# lorena-marquez-gif.github.io
+Map of my favorite destinations
